@@ -1,1 +1,1 @@
-# dsdsdw
+https://quicknewsflash.weebly.com
